@@ -1,3 +1,2 @@
-# mateuzin
-ola, eu sou o mateus, eu tenho 15 anos e sou muito legal e humilde. 
-Entrei no finalzinho desse ano em um novo colegio e fiz novos amigos. 
+# mateuzin e edu
+ola, nos somos a dupla eduardo e mateus, ambos temos 15 anos e somos muito legal e humilde e engraçados. 
